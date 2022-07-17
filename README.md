@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Sneha-siva
+- 👋 Hi, I’m @Sneha Siva
 - 👀 I’m interested in UX design
 - 🌱 I’m currently learning Information Science and Engineering
 - 💞️ I’m looking to collaborate on ...
